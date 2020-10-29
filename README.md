@@ -1,1 +1,1 @@
-Aspiring full-stack web developer
+Full-stack developer
