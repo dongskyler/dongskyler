@@ -1,4 +1,4 @@
-Full-stack developer
+Tiannong "Skyler" Dong >> Full-stack developer
 
 [skylerdong.com](https://skylerdong.com)
 
